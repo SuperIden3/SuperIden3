@@ -5,4 +5,3 @@
 <li>📫 You can reach me through Outlook or Gmail. Outlook: 214880@bpsma.org. Gmail: gomesshely0@gmail.com, robotiden0@gmail.com (gomesshely0@gmail.com is preferred)</li>
 <li>Reddit: https://www.reddit.com/user/SuperIden3</li>
 </ul>
-I do not expect anyone seeing my stuff, even when they are out in public.
